@@ -12,6 +12,6 @@
     </div>
 
   ##### Não importa se o desafio é forte, grande ou dificil demais, porque a determinação de vencer supera qualquer coisa!
-  ### Meio contato comigo:
+  ### Meio de contato comigo:
   - Celular para contato: 2198392-6570 ou 2196689-5735.
   
